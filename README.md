@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Anyu-Lily
-- 👀 I’m interested in 💩🚽🎮
+- 👀 I’m interested in 💩🚽🎮 AND yo mammmmmaaa
 - 🌱 I’m currently learning ...htrfgfcj7ytdtytyfv
 - 💞️ I’m looking to collaborate on ...maeh
 - 📫 How to reach me ...plz don't
